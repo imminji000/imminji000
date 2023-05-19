@@ -1,4 +1,4 @@
-🙆   **IM MINJI**
+🙋   **IM MINJI**
 
 👐 ---- <br />
 
